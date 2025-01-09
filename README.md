@@ -32,3 +32,15 @@ Microsoft Excel for data export, analysis, and visualization.
 
 ![image](https://github.com/user-attachments/assets/6acf1b9c-b02d-455e-8d7a-5e173a9a28a8)
 
+![image](https://github.com/user-attachments/assets/aff59a14-8c80-42a3-ad88-73a00a352632)
+
+![image](https://github.com/user-attachments/assets/bd202bca-3c47-42a7-8713-5073b9256cfd)
+
+![image](https://github.com/user-attachments/assets/5e079f6d-5634-475e-97f8-348cc3844a97)
+
+![image](https://github.com/user-attachments/assets/76d371d1-7117-491d-b025-7d49f49434e6)
+
+![image](https://github.com/user-attachments/assets/a273fb7e-5f18-49c4-8615-d9d68fa83125)
+
+
+
